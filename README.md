@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Spufyyffett
-- 👀 I’m interested in sleeping
-- 🌱 I’m currently learning nothing
+- 👀 I’m interested in doing nothing
 - 📫 You can reach me at telegram @Spufyyffett
 Ik it's waste of time 
 
