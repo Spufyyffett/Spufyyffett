@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Spufyyffett
-- 👀 I’m currently learning HTML, CSS and JS
 - 📫 You can reach me at telegram @Spufyyffett
 Ik it's waste of time 
 
